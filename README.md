@@ -1,1 +1,1 @@
-# Lyka-Realty---AI-property-list-and-CRM-assistant
+# Lyka-Realty-AI property list and CRM assistant
